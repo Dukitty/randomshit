@@ -1,2 +1,2 @@
 # randomshit
-shitost
+shitpost
